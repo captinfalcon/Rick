@@ -1,0 +1,1 @@
+This could be used in a malitous way. I do not condone misuse if this. This will make the computer do a number of things. If burnt to a cd will auto run. run Tron.bat to start the process.
